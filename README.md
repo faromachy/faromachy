@@ -1,4 +1,4 @@
-<h2> <img src="https://user-images.githubusercontent.com/65858180/137293079-2440dbff-e887-4b1d-802c-49d49dcfd664.gif" width="30" /> Hi,There! <img src="https://user-images.githubusercontent.com/65858180/137293369-94c631b6-8a17-4256-927a-070da186734c.gif" width="30" /> I Am Nadifahhh </h2>
+<h2> <img src="https://user-images.githubusercontent.com/65858180/137293079-2440dbff-e887-4b1d-802c-49d49dcfd664.gif" width="30" /> Hi,There! <img src="https://user-images.githubusercontent.com/65858180/137293369-94c631b6-8a17-4256-927a-070da186734c.gif" width="30" /> I Am parwati </h2>
 
 Nama saya parwati, saya kuliah di universitas muhammadiyah makassar jurusan informatika. saya tinggal di jalan sultan Alauddin 2. saya hobi membaca,nonton dan menulis,Saya bergabung di organisasi coconut computer cleb pada tahun 2023 .
 
